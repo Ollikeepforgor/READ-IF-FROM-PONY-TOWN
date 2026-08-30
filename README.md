@@ -8,7 +8,7 @@
 ⋆⭒˚.⋆  🪻 |𝘐 𝘔𝘈𝘐𝘕 𝘊𝘏𝘈𝘕𝘊𝘌 (𝘷𝘦𝘳𝘺 𝘪𝘮𝘱𝘰𝘳𝘵𝘢𝘯𝘵 𝘪𝘯𝘧𝘰)|
 # ── ⋆⋅𖤓⋅⋆ ──
 ⊹ ࣪ ˖ ໒꒱ 🌌 | 𝐴𝑁𝐷 𝑈𝐻 𝑈𝐻 𝑈𝐻 𝐼 𝐺𝐸𝑁𝑈𝐼𝑁𝐿𝐸𝑌 𝐹𝑂𝑅𝐺𝑂𝑇 𝑂𝐾 𝐵𝑌𝐸 𝑅𝐸𝐴𝐷 𝑀𝑌 𝑆𝑇𝑅𝐴𝑊𝑃𝐴𝐺𝐸 |
-
+# ── ⋆⋅𖤓⋅⋆ ──
 ARTFUL I LOVE YOU AWWW MY HUBBYSGLKJGM °˖➴
 
 <img width="331" height="331" alt="artful_ 2_2 (1)" src="https://github.com/user-attachments/assets/493a83ea-7260-4d7d-8ce3-a3b90130f7d7" />
