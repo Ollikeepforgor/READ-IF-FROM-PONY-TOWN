@@ -1,9 +1,10 @@
 # READ-IF-FROM-PONY-TOWN
-HI! IM NOLI!! 
-|THEY/THEM PRNS|C+H FREELY ON PT|I LIKE FORSAKEN AND LOTS MORE READ MY STRAWPAGE|
+𝗛𝗜! 𝗜𝗠 𝗡𝗢𝗟𝗜!!
+|𝗧𝗛𝗘𝗬/𝗧𝗛𝗘𝗠 𝗣𝗥𝗡𝗦|𝗖+𝗛 𝗙𝗥𝗘𝗘𝗟𝗬 𝗢𝗡 𝗣𝗧| 𝗜 𝗟𝗜𝗞𝗘 𝗙𝗢𝗥𝗦𝗔𝗞𝗘𝗡 𝗡 𝗧𝗠𝗜𝗥𝗕 𝗥𝗜𝗚𝗛𝗧 𝗡𝗢𝗪 |
 
-|I AM UH NOLI KIN  AND UH #1 ARTFUL FAN AND UHUH I LOVE 007n7|
-|I MAIN CHANCE (very important info) | AND UH UH UH I GENUINLEY FORGOT OK BYE READ MY STRAWPAGE |
-.
-<img src="https://i.pinimg.com/736x/98/f0/9b/98f09ba8fb09fcc015352554a5bd068f.jpg" alt="Story pin image"/><img width="689" height="900" alt="image" src="https://github.com/user-attachments/assets/c4058034-44fe-4b73-8c9d-a288c2a8f3a6" />
+|𝙄 𝘼𝙈 𝙐𝙃 𝙉𝙊𝙇𝙄 𝙆𝙄𝙉 𝘼𝙉𝘿 𝙄 𝙔𝙐𝙈𝙀𝙎𝙃𝙄𝙋 𝙒𝙄𝙏𝙃 𝘼𝙍𝙏𝙁𝙐𝙇!! (𝗵𝘆𝗽𝗲𝗿 𝘀𝗵𝗮𝗿𝗶𝗻𝗴) |
+|𝘐 𝘔𝘈𝘐𝘕 𝘊𝘏𝘈𝘕𝘊𝘌 (𝘷𝘦𝘳𝘺 𝘪𝘮𝘱𝘰𝘳𝘵𝘢𝘯𝘵 𝘪𝘯𝘧𝘰)|
+| 𝐴𝑁𝐷 𝑈𝐻 𝑈𝐻 𝑈𝐻 𝐼 𝐺𝐸𝑁𝑈𝐼𝑁𝐿𝐸𝑌 𝐹𝑂𝑅𝐺𝑂𝑇 𝑂𝐾 𝐵𝑌𝐸 𝑅𝐸𝐴𝐷 𝑀𝑌 𝑆𝑇𝑅𝐴𝑊𝑃𝐴𝐺𝐸 |
 
+ARTFUL I LOVE YOU AWWW
+<img width="331" height="331" alt="artful_ 2_2 (1)" src="https://github.com/user-attachments/assets/493a83ea-7260-4d7d-8ce3-a3b90130f7d7" />
